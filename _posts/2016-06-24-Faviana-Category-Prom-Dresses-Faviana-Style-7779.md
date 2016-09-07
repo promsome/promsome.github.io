@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2016-06-24'
+title: "Faviana Category Prom Dresses Faviana Style 7779"
+category: Faviana Category Prom Dresses
+tags: [Faviana Category Prom Dresses]
+---
+### Faviana Category Prom Dresses Faviana Style 7779
+Just **$249.99**
+### 
+
+<a href="https://www.readybrides.com/en/faviana-category-prom-dresses/80745-faviana-style-7779.html"><img src="//static.msromantic.com/201027/faviana-style-7779.jpg" alt="Faviana Style 7779" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/faviana-category-prom-dresses/80745-faviana-style-7779.html"><img src="//static.msromantic.com/201026/faviana-style-7779.jpg" alt="Faviana Style 7779" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/faviana-category-prom-dresses/80745-faviana-style-7779.html](https://www.readybrides.com/en/faviana-category-prom-dresses/80745-faviana-style-7779.html)
