@@ -9,7 +9,7 @@ tags: [Mac Duggal Pageant Dress Winning Moments]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80680-mac-duggal-miss-wisconsin.html"><img src="//static.msromantic.com/200770/mac-duggal-miss-wisconsin.jpg" alt="Mac Duggal miss wisconsin" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80680-mac-duggal-miss-wisconsin.html"><img src="//static.msromantic.com/200770/mac-duggal-miss-wisconsin.jpg" alt="Mac Duggal miss wisconsin" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80680-mac-duggal-miss-wisconsin.html](https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80680-mac-duggal-miss-wisconsin.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80680-mac-duggal-miss-wisconsin.html](https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80680-mac-duggal-miss-wisconsin.html)

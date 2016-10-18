@@ -9,7 +9,7 @@ tags: [Vertize Gala Atelier]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-atelier/83337-vertize-gala-joyce.html"><img src="//static.msromantic.com/214421/vertize-gala-joyce.jpg" alt="Vertize Gala Joyce" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-atelier/83337-vertize-gala-joyce.html"><img src="//static.msromantic.com/214421/vertize-gala-joyce.jpg" alt="Vertize Gala Joyce" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-atelier/83337-vertize-gala-joyce.html](https://www.readybrides.com/en/vertize-gala-atelier/83337-vertize-gala-joyce.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-atelier/83337-vertize-gala-joyce.html](https://www.antebrands.com/en/vertize-gala-atelier/83337-vertize-gala-joyce.html)

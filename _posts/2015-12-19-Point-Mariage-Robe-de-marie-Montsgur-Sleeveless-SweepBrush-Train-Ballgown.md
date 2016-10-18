@@ -9,7 +9,7 @@ tags: [Point Mariage,Ballgown,Sweetheart,Sweep/Brush Train,Sleeveless]
 Just **$485.67**
 ###   Sleeveless Sweep/Brush Train Ballgown 
 <table><tr><td>BRANDS</td><td>Point Mariage</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html"><img src="//static.msromantic.com/215218/point-mariage-robe-de-mariee-montsegur.jpg" alt="Point Mariage Robe de mariée Montségur" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html"><img src="//static.msromantic.com/215218/point-mariage-robe-de-mariee-montsegur.jpg" alt="Point Mariage Robe de mariée Montségur" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html"><img src="//static.msromantic.com/215217/point-mariage-robe-de-mariee-montsegur.jpg" alt="Point Mariage Robe de mariée Montségur" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html](https://www.readybrides.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html)
+<!-- break --><a href="https://www.antebrands.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html"><img src="//static.msromantic.com/215217/point-mariage-robe-de-mariee-montsegur.jpg" alt="Point Mariage Robe de mariée Montségur" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html](https://www.antebrands.com/en/point-mariage/83826-point-mariage-robe-de-mariee-montsegur.html)

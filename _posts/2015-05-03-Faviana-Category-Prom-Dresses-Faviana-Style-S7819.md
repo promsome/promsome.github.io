@@ -9,7 +9,7 @@ tags: [Faviana Category Prom Dresses]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html"><img src="//static.msromantic.com/201172/faviana-style-s7819.jpg" alt="Faviana Style S7819" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html"><img src="//static.msromantic.com/201172/faviana-style-s7819.jpg" alt="Faviana Style S7819" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html"><img src="//static.msromantic.com/201171/faviana-style-s7819.jpg" alt="Faviana Style S7819" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html](https://www.readybrides.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html)
+<!-- break --><a href="https://www.antebrands.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html"><img src="//static.msromantic.com/201171/faviana-style-s7819.jpg" alt="Faviana Style S7819" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html](https://www.antebrands.com/en/faviana-category-prom-dresses/80794-faviana-style-s7819.html)

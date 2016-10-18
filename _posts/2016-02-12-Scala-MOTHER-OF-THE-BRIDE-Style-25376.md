@@ -9,7 +9,7 @@ tags: [Scala MOTHER OF THE BRIDE]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html"><img src="//static.msromantic.com/212505/scala-mother-of-the-bride-style-25376.jpg" alt="Scala MOTHER OF THE BRIDE Style 25376" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html"><img src="//static.msromantic.com/212505/scala-mother-of-the-bride-style-25376.jpg" alt="Scala MOTHER OF THE BRIDE Style 25376" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html"><img src="//static.msromantic.com/212504/scala-mother-of-the-bride-style-25376.jpg" alt="Scala MOTHER OF THE BRIDE Style 25376" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html](https://www.readybrides.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html"><img src="//static.msromantic.com/212504/scala-mother-of-the-bride-style-25376.jpg" alt="Scala MOTHER OF THE BRIDE Style 25376" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html](https://www.antebrands.com/en/scala-mother-of-the-bride/82480-scala-mother-of-the-bride-style-25376.html)

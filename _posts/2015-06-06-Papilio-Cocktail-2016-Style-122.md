@@ -9,7 +9,7 @@ tags: [Papilio Cocktail 2016]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-cocktail-2016/82696-papilio-cocktail-2016-style-122.html"><img src="//static.msromantic.com/213182/papilio-cocktail-2016-style-122.jpg" alt="Papilio Cocktail 2016 Style 122" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-cocktail-2016/82696-papilio-cocktail-2016-style-122.html"><img src="//static.msromantic.com/213182/papilio-cocktail-2016-style-122.jpg" alt="Papilio Cocktail 2016 Style 122" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-cocktail-2016/82696-papilio-cocktail-2016-style-122.html](https://www.readybrides.com/en/papilio-cocktail-2016/82696-papilio-cocktail-2016-style-122.html)
+Buy it: [https://www.antebrands.com/en/papilio-cocktail-2016/82696-papilio-cocktail-2016-style-122.html](https://www.antebrands.com/en/papilio-cocktail-2016/82696-papilio-cocktail-2016-style-122.html)

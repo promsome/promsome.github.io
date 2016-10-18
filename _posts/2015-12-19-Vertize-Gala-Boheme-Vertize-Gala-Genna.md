@@ -9,7 +9,7 @@ tags: [Vertize Gala Boheme]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html"><img src="//static.msromantic.com/214460/vertize-gala-genna.jpg" alt="Vertize Gala Genna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html"><img src="//static.msromantic.com/214460/vertize-gala-genna.jpg" alt="Vertize Gala Genna" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html"><img src="//static.msromantic.com/214459/vertize-gala-genna.jpg" alt="Vertize Gala Genna" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html](https://www.readybrides.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html"><img src="//static.msromantic.com/214459/vertize-gala-genna.jpg" alt="Vertize Gala Genna" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html](https://www.antebrands.com/en/vertize-gala-boheme/83359-vertize-gala-genna.html)

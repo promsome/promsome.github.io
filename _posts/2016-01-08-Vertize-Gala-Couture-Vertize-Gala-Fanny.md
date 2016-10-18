@@ -9,7 +9,7 @@ tags: [Vertize Gala Couture]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html"><img src="//static.msromantic.com/214497/vertize-gala-fanny.jpg" alt="Vertize Gala Fanny" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html"><img src="//static.msromantic.com/214497/vertize-gala-fanny.jpg" alt="Vertize Gala Fanny" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html"><img src="//static.msromantic.com/214496/vertize-gala-fanny.jpg" alt="Vertize Gala Fanny" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html](https://www.readybrides.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html"><img src="//static.msromantic.com/214496/vertize-gala-fanny.jpg" alt="Vertize Gala Fanny" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html](https://www.antebrands.com/en/vertize-gala-couture/83379-vertize-gala-fanny.html)

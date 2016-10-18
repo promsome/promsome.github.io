@@ -9,8 +9,8 @@ tags: [Mac Duggal Ball Gowns]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html"><img src="//static.msromantic.com/199942/mac-duggal-ball-gowns-style-40497h.jpg" alt="Mac Duggal Ball Gowns Style 40497H" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html"><img src="//static.msromantic.com/199942/mac-duggal-ball-gowns-style-40497h.jpg" alt="Mac Duggal Ball Gowns Style 40497H" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html"><img src="//static.msromantic.com/199943/mac-duggal-ball-gowns-style-40497h.jpg" alt="Mac Duggal Ball Gowns Style 40497H" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html"><img src="//static.msromantic.com/199941/mac-duggal-ball-gowns-style-40497h.jpg" alt="Mac Duggal Ball Gowns Style 40497H" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html](https://www.readybrides.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html)
+<!-- break --><a href="https://www.antebrands.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html"><img src="//static.msromantic.com/199943/mac-duggal-ball-gowns-style-40497h.jpg" alt="Mac Duggal Ball Gowns Style 40497H" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html"><img src="//static.msromantic.com/199941/mac-duggal-ball-gowns-style-40497h.jpg" alt="Mac Duggal Ball Gowns Style 40497H" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html](https://www.antebrands.com/en/mac-duggal-ball-gowns/80337-mac-duggal-ball-gowns-style-40497h.html)

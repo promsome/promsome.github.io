@@ -9,7 +9,7 @@ tags: [Vertize Gala Couture]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html"><img src="//static.msromantic.com/214485/vertize-gala-fedra.jpg" alt="Vertize Gala Fedra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html"><img src="//static.msromantic.com/214485/vertize-gala-fedra.jpg" alt="Vertize Gala Fedra" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html"><img src="//static.msromantic.com/214484/vertize-gala-fedra.jpg" alt="Vertize Gala Fedra" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html](https://www.readybrides.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html"><img src="//static.msromantic.com/214484/vertize-gala-fedra.jpg" alt="Vertize Gala Fedra" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html](https://www.antebrands.com/en/vertize-gala-couture/83372-vertize-gala-fedra.html)

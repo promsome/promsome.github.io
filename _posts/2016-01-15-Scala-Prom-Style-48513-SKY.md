@@ -9,7 +9,7 @@ tags: [Scala Prom]
 Just **$1239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-prom/82452-scala-prom-style-48513-sky.html"><img src="//static.msromantic.com/212379/scala-prom-style-48513-sky.jpg" alt="Scala Prom Style 48513 SKY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-prom/82452-scala-prom-style-48513-sky.html"><img src="//static.msromantic.com/212379/scala-prom-style-48513-sky.jpg" alt="Scala Prom Style 48513 SKY" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-prom/82452-scala-prom-style-48513-sky.html"><img src="//static.msromantic.com/212378/scala-prom-style-48513-sky.jpg" alt="Scala Prom Style 48513 SKY" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-prom/82452-scala-prom-style-48513-sky.html](https://www.readybrides.com/en/scala-prom/82452-scala-prom-style-48513-sky.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-prom/82452-scala-prom-style-48513-sky.html"><img src="//static.msromantic.com/212378/scala-prom-style-48513-sky.jpg" alt="Scala Prom Style 48513 SKY" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-prom/82452-scala-prom-style-48513-sky.html](https://www.antebrands.com/en/scala-prom/82452-scala-prom-style-48513-sky.html)

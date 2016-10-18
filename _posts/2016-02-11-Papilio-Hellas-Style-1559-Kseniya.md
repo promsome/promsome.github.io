@@ -9,7 +9,7 @@ tags: [Papilio Hellas]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-hellas/82946-papilio-hellas-style-1559-kseniya.html"><img src="//static.msromantic.com/213649/papilio-hellas-style-1559-kseniya.jpg" alt="Papilio Hellas Style 1559 - Kseniya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-hellas/82946-papilio-hellas-style-1559-kseniya.html"><img src="//static.msromantic.com/213649/papilio-hellas-style-1559-kseniya.jpg" alt="Papilio Hellas Style 1559 - Kseniya" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-hellas/82946-papilio-hellas-style-1559-kseniya.html](https://www.readybrides.com/en/papilio-hellas/82946-papilio-hellas-style-1559-kseniya.html)
+Buy it: [https://www.antebrands.com/en/papilio-hellas/82946-papilio-hellas-style-1559-kseniya.html](https://www.antebrands.com/en/papilio-hellas/82946-papilio-hellas-style-1559-kseniya.html)

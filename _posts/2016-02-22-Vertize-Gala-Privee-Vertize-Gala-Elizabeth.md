@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83424-vertize-gala-elizabeth.html"><img src="//static.msromantic.com/214570/vertize-gala-elizabeth.jpg" alt="Vertize Gala Elizabeth" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83424-vertize-gala-elizabeth.html"><img src="//static.msromantic.com/214570/vertize-gala-elizabeth.jpg" alt="Vertize Gala Elizabeth" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83424-vertize-gala-elizabeth.html](https://www.readybrides.com/en/vertize-gala-privee/83424-vertize-gala-elizabeth.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83424-vertize-gala-elizabeth.html](https://www.antebrands.com/en/vertize-gala-privee/83424-vertize-gala-elizabeth.html)

@@ -9,7 +9,7 @@ tags: [Mac Duggal Pageant Dress Winning Moments]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80674-mac-duggal-miss-jamaica.html"><img src="//static.msromantic.com/200764/mac-duggal-miss-jamaica.jpg" alt="Mac Duggal Miss Jamaica" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80674-mac-duggal-miss-jamaica.html"><img src="//static.msromantic.com/200764/mac-duggal-miss-jamaica.jpg" alt="Mac Duggal Miss Jamaica" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80674-mac-duggal-miss-jamaica.html](https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80674-mac-duggal-miss-jamaica.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80674-mac-duggal-miss-jamaica.html](https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80674-mac-duggal-miss-jamaica.html)

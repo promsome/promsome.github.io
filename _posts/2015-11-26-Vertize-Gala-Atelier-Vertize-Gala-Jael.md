@@ -9,7 +9,7 @@ tags: [Vertize Gala Atelier]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html"><img src="//static.msromantic.com/214420/vertize-gala-jael.jpg" alt="Vertize Gala Jael" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html"><img src="//static.msromantic.com/214420/vertize-gala-jael.jpg" alt="Vertize Gala Jael" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html"><img src="//static.msromantic.com/214419/vertize-gala-jael.jpg" alt="Vertize Gala Jael" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html](https://www.readybrides.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html"><img src="//static.msromantic.com/214419/vertize-gala-jael.jpg" alt="Vertize Gala Jael" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html](https://www.antebrands.com/en/vertize-gala-atelier/83336-vertize-gala-jael.html)

@@ -9,7 +9,7 @@ tags: [Vertize Gala Boheme]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html"><img src="//static.msromantic.com/214455/vertize-gala-ginger.jpg" alt="Vertize Gala Ginger" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html"><img src="//static.msromantic.com/214455/vertize-gala-ginger.jpg" alt="Vertize Gala Ginger" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html"><img src="//static.msromantic.com/214454/vertize-gala-ginger.jpg" alt="Vertize Gala Ginger" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html](https://www.readybrides.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html"><img src="//static.msromantic.com/214454/vertize-gala-ginger.jpg" alt="Vertize Gala Ginger" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html](https://www.antebrands.com/en/vertize-gala-boheme/83356-vertize-gala-ginger.html)

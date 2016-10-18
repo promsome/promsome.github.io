@@ -9,7 +9,7 @@ tags: [Mac Duggal Flash]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-flash/80437-mac-duggal-flash-style-65306n.html"><img src="//static.msromantic.com/200201/mac-duggal-flash-style-65306n.jpg" alt="Mac Duggal Flash Style 65306N" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-flash/80437-mac-duggal-flash-style-65306n.html"><img src="//static.msromantic.com/200201/mac-duggal-flash-style-65306n.jpg" alt="Mac Duggal Flash Style 65306N" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-flash/80437-mac-duggal-flash-style-65306n.html](https://www.readybrides.com/en/mac-duggal-flash/80437-mac-duggal-flash-style-65306n.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-flash/80437-mac-duggal-flash-style-65306n.html](https://www.antebrands.com/en/mac-duggal-flash/80437-mac-duggal-flash-style-65306n.html)

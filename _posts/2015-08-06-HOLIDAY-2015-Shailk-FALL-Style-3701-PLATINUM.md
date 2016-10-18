@@ -9,9 +9,9 @@ tags: [HOLIDAY 2015]
 Just **$789.99**
 ### 
 
-<a href="https://www.readybrides.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206895/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206895/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206896/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206897/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206894/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html](https://www.readybrides.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html)
+<!-- break --><a href="https://www.antebrands.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206896/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206897/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html"><img src="//static.msromantic.com/206894/shailk-fall-holiday-2015-style-3701-platinum.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3701 PLATINUM" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html](https://www.antebrands.com/en/holiday-2015/81823-shailk-fall-holiday-2015-style-3701-platinum.html)

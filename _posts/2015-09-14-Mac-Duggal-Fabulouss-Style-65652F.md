@@ -9,7 +9,7 @@ tags: [Mac Duggal Fabulouss]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-fabulouss/80461-mac-duggal-fabulouss-style-65652f.html"><img src="//static.msromantic.com/200262/mac-duggal-fabulouss-style-65652f.jpg" alt="Mac Duggal Fabulouss Style 65652F" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-fabulouss/80461-mac-duggal-fabulouss-style-65652f.html"><img src="//static.msromantic.com/200262/mac-duggal-fabulouss-style-65652f.jpg" alt="Mac Duggal Fabulouss Style 65652F" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-fabulouss/80461-mac-duggal-fabulouss-style-65652f.html](https://www.readybrides.com/en/mac-duggal-fabulouss/80461-mac-duggal-fabulouss-style-65652f.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-fabulouss/80461-mac-duggal-fabulouss-style-65652f.html](https://www.antebrands.com/en/mac-duggal-fabulouss/80461-mac-duggal-fabulouss-style-65652f.html)

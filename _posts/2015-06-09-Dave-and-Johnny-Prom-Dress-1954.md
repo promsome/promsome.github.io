@@ -9,7 +9,7 @@ tags: [Dave and Johnny]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html"><img src="//static.msromantic.com/198927/dave-and-johnny-prom-dress-1954.jpg" alt="Dave and Johnny Prom Dress 1954" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html"><img src="//static.msromantic.com/198927/dave-and-johnny-prom-dress-1954.jpg" alt="Dave and Johnny Prom Dress 1954" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html"><img src="//static.msromantic.com/198926/dave-and-johnny-prom-dress-1954.jpg" alt="Dave and Johnny Prom Dress 1954" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html](https://www.readybrides.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html)
+<!-- break --><a href="https://www.antebrands.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html"><img src="//static.msromantic.com/198926/dave-and-johnny-prom-dress-1954.jpg" alt="Dave and Johnny Prom Dress 1954" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html](https://www.antebrands.com/en/dave-and-johnny/79897-dave-and-johnny-prom-dress-1954.html)

@@ -9,7 +9,7 @@ tags: [Vertize Gala Boheme]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-boheme/83358-vertize-gala-geri.html"><img src="//static.msromantic.com/214458/vertize-gala-geri.jpg" alt="Vertize Gala Geri" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-boheme/83358-vertize-gala-geri.html"><img src="//static.msromantic.com/214458/vertize-gala-geri.jpg" alt="Vertize Gala Geri" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-boheme/83358-vertize-gala-geri.html](https://www.readybrides.com/en/vertize-gala-boheme/83358-vertize-gala-geri.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-boheme/83358-vertize-gala-geri.html](https://www.antebrands.com/en/vertize-gala-boheme/83358-vertize-gala-geri.html)

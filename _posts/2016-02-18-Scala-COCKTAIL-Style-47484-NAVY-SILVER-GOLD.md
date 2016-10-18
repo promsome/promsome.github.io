@@ -9,7 +9,7 @@ tags: [Scala COCKTAIL]
 Just **$719.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html"><img src="//static.msromantic.com/212539/scala-cocktail-style-47484-navy-silver-gold.jpg" alt="Scala COCKTAIL Style 47484 NAVY SILVER GOLD" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html"><img src="//static.msromantic.com/212539/scala-cocktail-style-47484-navy-silver-gold.jpg" alt="Scala COCKTAIL Style 47484 NAVY SILVER GOLD" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html"><img src="//static.msromantic.com/212538/scala-cocktail-style-47484-navy-silver-gold.jpg" alt="Scala COCKTAIL Style 47484 NAVY SILVER GOLD" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html](https://www.readybrides.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html"><img src="//static.msromantic.com/212538/scala-cocktail-style-47484-navy-silver-gold.jpg" alt="Scala COCKTAIL Style 47484 NAVY SILVER GOLD" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html](https://www.antebrands.com/en/scala-cocktail/82486-scala-cocktail-style-47484-navy-silver-gold.html)

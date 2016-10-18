@@ -9,7 +9,7 @@ tags: [Papilio Sole Mio]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-sole-mio/82959-papilio-sole-mio-style-1405-rosanna.html"><img src="//static.msromantic.com/213670/papilio-sole-mio-style-1405-rosanna.jpg" alt="Papilio Sole Mio Style 1405 - Rosanna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-sole-mio/82959-papilio-sole-mio-style-1405-rosanna.html"><img src="//static.msromantic.com/213670/papilio-sole-mio-style-1405-rosanna.jpg" alt="Papilio Sole Mio Style 1405 - Rosanna" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-sole-mio/82959-papilio-sole-mio-style-1405-rosanna.html](https://www.readybrides.com/en/papilio-sole-mio/82959-papilio-sole-mio-style-1405-rosanna.html)
+Buy it: [https://www.antebrands.com/en/papilio-sole-mio/82959-papilio-sole-mio-style-1405-rosanna.html](https://www.antebrands.com/en/papilio-sole-mio/82959-papilio-sole-mio-style-1405-rosanna.html)

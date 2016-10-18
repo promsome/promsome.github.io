@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html"><img src="//static.msromantic.com/214531/vertize-gala-evadne.jpg" alt="Vertize Gala Evadne" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html"><img src="//static.msromantic.com/214531/vertize-gala-evadne.jpg" alt="Vertize Gala Evadne" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html"><img src="//static.msromantic.com/214530/vertize-gala-evadne.jpg" alt="Vertize Gala Evadne" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html](https://www.readybrides.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html"><img src="//static.msromantic.com/214530/vertize-gala-evadne.jpg" alt="Vertize Gala Evadne" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html](https://www.antebrands.com/en/vertize-gala-privee/83398-vertize-gala-evadne.html)

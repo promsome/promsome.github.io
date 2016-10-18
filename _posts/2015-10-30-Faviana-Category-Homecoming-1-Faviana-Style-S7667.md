@@ -9,7 +9,7 @@ tags: [Faviana Category Homecoming 1]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html"><img src="//static.msromantic.com/201849/faviana-style-s7667.jpg" alt="Faviana Style S7667" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html"><img src="//static.msromantic.com/201849/faviana-style-s7667.jpg" alt="Faviana Style S7667" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html"><img src="//static.msromantic.com/201848/faviana-style-s7667.jpg" alt="Faviana Style S7667" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html](https://www.readybrides.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html)
+<!-- break --><a href="https://www.antebrands.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html"><img src="//static.msromantic.com/201848/faviana-style-s7667.jpg" alt="Faviana Style S7667" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html](https://www.antebrands.com/en/faviana-category-homecoming-1/80974-faviana-style-s7667.html)

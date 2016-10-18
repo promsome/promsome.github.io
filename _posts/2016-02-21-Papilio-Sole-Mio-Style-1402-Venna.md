@@ -9,7 +9,7 @@ tags: [Papilio Sole Mio]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-sole-mio/82956-papilio-sole-mio-style-1402-venna.html"><img src="//static.msromantic.com/213666/papilio-sole-mio-style-1402-venna.jpg" alt="Papilio Sole Mio Style 1402 - Venna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-sole-mio/82956-papilio-sole-mio-style-1402-venna.html"><img src="//static.msromantic.com/213666/papilio-sole-mio-style-1402-venna.jpg" alt="Papilio Sole Mio Style 1402 - Venna" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-sole-mio/82956-papilio-sole-mio-style-1402-venna.html](https://www.readybrides.com/en/papilio-sole-mio/82956-papilio-sole-mio-style-1402-venna.html)
+Buy it: [https://www.antebrands.com/en/papilio-sole-mio/82956-papilio-sole-mio-style-1402-venna.html](https://www.antebrands.com/en/papilio-sole-mio/82956-papilio-sole-mio-style-1402-venna.html)

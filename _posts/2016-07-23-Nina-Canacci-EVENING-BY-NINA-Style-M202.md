@@ -9,7 +9,7 @@ tags: [Nina Canacci EVENING BY NINA]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/nina-canacci-evening-by-nina/81241-nina-canacci-evening-by-nina-style-m202.html"><img src="//static.msromantic.com/202405/nina-canacci-evening-by-nina-style-m202.jpg" alt="Nina Canacci EVENING BY NINA Style M202" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/nina-canacci-evening-by-nina/81241-nina-canacci-evening-by-nina-style-m202.html"><img src="//static.msromantic.com/202405/nina-canacci-evening-by-nina-style-m202.jpg" alt="Nina Canacci EVENING BY NINA Style M202" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/nina-canacci-evening-by-nina/81241-nina-canacci-evening-by-nina-style-m202.html](https://www.readybrides.com/en/nina-canacci-evening-by-nina/81241-nina-canacci-evening-by-nina-style-m202.html)
+Buy it: [https://www.antebrands.com/en/nina-canacci-evening-by-nina/81241-nina-canacci-evening-by-nina-style-m202.html](https://www.antebrands.com/en/nina-canacci-evening-by-nina/81241-nina-canacci-evening-by-nina-style-m202.html)

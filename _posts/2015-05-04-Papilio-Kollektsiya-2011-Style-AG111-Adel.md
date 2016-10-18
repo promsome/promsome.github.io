@@ -9,7 +9,7 @@ tags: [Papilio Kollektsiya 2011]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html"><img src="//static.msromantic.com/213971/papilio-kollektsiya-2011-style-ag111-adel.jpg" alt="Papilio Kollektsiya 2011 Style AG111 - Adel" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html"><img src="//static.msromantic.com/213971/papilio-kollektsiya-2011-style-ag111-adel.jpg" alt="Papilio Kollektsiya 2011 Style AG111 - Adel" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html"><img src="//static.msromantic.com/213970/papilio-kollektsiya-2011-style-ag111-adel.jpg" alt="Papilio Kollektsiya 2011 Style AG111 - Adel" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html](https://www.readybrides.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html)
+<!-- break --><a href="https://www.antebrands.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html"><img src="//static.msromantic.com/213970/papilio-kollektsiya-2011-style-ag111-adel.jpg" alt="Papilio Kollektsiya 2011 Style AG111 - Adel" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html](https://www.antebrands.com/en/papilio-kollektsiya-2011/83130-papilio-kollektsiya-2011-style-ag111-adel.html)

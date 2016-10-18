@@ -9,7 +9,7 @@ tags: [Papilio Sole Mio]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-sole-mio/82979-papilio-sole-mio-style-1432-federica.html"><img src="//static.msromantic.com/213701/papilio-sole-mio-style-1432-federica.jpg" alt="Papilio Sole Mio Style 1432 - Federica" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-sole-mio/82979-papilio-sole-mio-style-1432-federica.html"><img src="//static.msromantic.com/213701/papilio-sole-mio-style-1432-federica.jpg" alt="Papilio Sole Mio Style 1432 - Federica" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-sole-mio/82979-papilio-sole-mio-style-1432-federica.html](https://www.readybrides.com/en/papilio-sole-mio/82979-papilio-sole-mio-style-1432-federica.html)
+Buy it: [https://www.antebrands.com/en/papilio-sole-mio/82979-papilio-sole-mio-style-1432-federica.html](https://www.antebrands.com/en/papilio-sole-mio/82979-papilio-sole-mio-style-1432-federica.html)

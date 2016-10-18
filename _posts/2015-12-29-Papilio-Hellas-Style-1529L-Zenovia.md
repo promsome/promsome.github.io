@@ -9,7 +9,7 @@ tags: [Papilio Hellas]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-hellas/82902-papilio-hellas-style-1529l-zenovia.html"><img src="//static.msromantic.com/213573/papilio-hellas-style-1529l-zenovia.jpg" alt="Papilio Hellas Style 1529L - Zenovia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-hellas/82902-papilio-hellas-style-1529l-zenovia.html"><img src="//static.msromantic.com/213573/papilio-hellas-style-1529l-zenovia.jpg" alt="Papilio Hellas Style 1529L - Zenovia" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-hellas/82902-papilio-hellas-style-1529l-zenovia.html](https://www.readybrides.com/en/papilio-hellas/82902-papilio-hellas-style-1529l-zenovia.html)
+Buy it: [https://www.antebrands.com/en/papilio-hellas/82902-papilio-hellas-style-1529l-zenovia.html](https://www.antebrands.com/en/papilio-hellas/82902-papilio-hellas-style-1529l-zenovia.html)

@@ -9,7 +9,7 @@ tags: [Vertize Gala Atelier]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html"><img src="//static.msromantic.com/214416/vertize-gala-janina.jpg" alt="Vertize Gala Janina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html"><img src="//static.msromantic.com/214416/vertize-gala-janina.jpg" alt="Vertize Gala Janina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html"><img src="//static.msromantic.com/214415/vertize-gala-janina.jpg" alt="Vertize Gala Janina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html](https://www.readybrides.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html"><img src="//static.msromantic.com/214415/vertize-gala-janina.jpg" alt="Vertize Gala Janina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html](https://www.antebrands.com/en/vertize-gala-atelier/83334-vertize-gala-janina.html)

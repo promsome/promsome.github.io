@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83401-vertize-gala-eugin.html"><img src="//static.msromantic.com/214535/vertize-gala-eugin.jpg" alt="Vertize Gala Eugin" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83401-vertize-gala-eugin.html"><img src="//static.msromantic.com/214535/vertize-gala-eugin.jpg" alt="Vertize Gala Eugin" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83401-vertize-gala-eugin.html](https://www.readybrides.com/en/vertize-gala-privee/83401-vertize-gala-eugin.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83401-vertize-gala-eugin.html](https://www.antebrands.com/en/vertize-gala-privee/83401-vertize-gala-eugin.html)

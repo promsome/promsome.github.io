@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html"><img src="//static.msromantic.com/214567/vertize-gala-elsa.jpg" alt="Vertize Gala Elsa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html"><img src="//static.msromantic.com/214567/vertize-gala-elsa.jpg" alt="Vertize Gala Elsa" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html"><img src="//static.msromantic.com/214566/vertize-gala-elsa.jpg" alt="Vertize Gala Elsa" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html](https://www.readybrides.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html"><img src="//static.msromantic.com/214566/vertize-gala-elsa.jpg" alt="Vertize Gala Elsa" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html](https://www.antebrands.com/en/vertize-gala-privee/83422-vertize-gala-elsa.html)

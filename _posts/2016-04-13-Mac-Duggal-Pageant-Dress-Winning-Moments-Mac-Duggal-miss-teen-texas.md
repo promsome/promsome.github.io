@@ -9,7 +9,7 @@ tags: [Mac Duggal Pageant Dress Winning Moments]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80673-mac-duggal-miss-teen-texas.html"><img src="//static.msromantic.com/200763/mac-duggal-miss-teen-texas.jpg" alt="Mac Duggal miss teen texas" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80673-mac-duggal-miss-teen-texas.html"><img src="//static.msromantic.com/200763/mac-duggal-miss-teen-texas.jpg" alt="Mac Duggal miss teen texas" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80673-mac-duggal-miss-teen-texas.html](https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80673-mac-duggal-miss-teen-texas.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80673-mac-duggal-miss-teen-texas.html](https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80673-mac-duggal-miss-teen-texas.html)

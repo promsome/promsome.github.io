@@ -9,7 +9,7 @@ tags: [Mac Duggal Ball Gowns]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html"><img src="//static.msromantic.com/199958/mac-duggal-ball-gowns-style-48418h.jpg" alt="Mac Duggal Ball Gowns Style 48418H" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html"><img src="//static.msromantic.com/199958/mac-duggal-ball-gowns-style-48418h.jpg" alt="Mac Duggal Ball Gowns Style 48418H" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html"><img src="//static.msromantic.com/199957/mac-duggal-ball-gowns-style-48418h.jpg" alt="Mac Duggal Ball Gowns Style 48418H" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html](https://www.readybrides.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html)
+<!-- break --><a href="https://www.antebrands.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html"><img src="//static.msromantic.com/199957/mac-duggal-ball-gowns-style-48418h.jpg" alt="Mac Duggal Ball Gowns Style 48418H" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html](https://www.antebrands.com/en/mac-duggal-ball-gowns/80343-mac-duggal-ball-gowns-style-48418h.html)

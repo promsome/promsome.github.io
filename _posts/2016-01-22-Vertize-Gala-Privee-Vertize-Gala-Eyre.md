@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html"><img src="//static.msromantic.com/214523/vertize-gala-eyre.jpg" alt="Vertize Gala Eyre" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html"><img src="//static.msromantic.com/214523/vertize-gala-eyre.jpg" alt="Vertize Gala Eyre" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html"><img src="//static.msromantic.com/214522/vertize-gala-eyre.jpg" alt="Vertize Gala Eyre" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html](https://www.readybrides.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html"><img src="//static.msromantic.com/214522/vertize-gala-eyre.jpg" alt="Vertize Gala Eyre" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html](https://www.antebrands.com/en/vertize-gala-privee/83393-vertize-gala-eyre.html)

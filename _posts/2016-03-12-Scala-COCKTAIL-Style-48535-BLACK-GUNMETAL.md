@@ -9,7 +9,7 @@ tags: [Scala COCKTAIL]
 Just **$649.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html"><img src="//static.msromantic.com/212633/scala-cocktail-style-48535-black-gunmetal.jpg" alt="Scala COCKTAIL Style 48535 BLACK GUNMETAL" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html"><img src="//static.msromantic.com/212633/scala-cocktail-style-48535-black-gunmetal.jpg" alt="Scala COCKTAIL Style 48535 BLACK GUNMETAL" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html"><img src="//static.msromantic.com/212632/scala-cocktail-style-48535-black-gunmetal.jpg" alt="Scala COCKTAIL Style 48535 BLACK GUNMETAL" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html](https://www.readybrides.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html"><img src="//static.msromantic.com/212632/scala-cocktail-style-48535-black-gunmetal.jpg" alt="Scala COCKTAIL Style 48535 BLACK GUNMETAL" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html](https://www.antebrands.com/en/scala-cocktail/82509-scala-cocktail-style-48535-black-gunmetal.html)

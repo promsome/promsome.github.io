@@ -9,7 +9,7 @@ tags: [Scala Prom]
 Just **$1109.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-prom/82454-scala-prom-style-48571-blush.html"><img src="//static.msromantic.com/212383/scala-prom-style-48571-blush.jpg" alt="Scala Prom Style 48571 BLUSH" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-prom/82454-scala-prom-style-48571-blush.html"><img src="//static.msromantic.com/212383/scala-prom-style-48571-blush.jpg" alt="Scala Prom Style 48571 BLUSH" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-prom/82454-scala-prom-style-48571-blush.html"><img src="//static.msromantic.com/212382/scala-prom-style-48571-blush.jpg" alt="Scala Prom Style 48571 BLUSH" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-prom/82454-scala-prom-style-48571-blush.html](https://www.readybrides.com/en/scala-prom/82454-scala-prom-style-48571-blush.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-prom/82454-scala-prom-style-48571-blush.html"><img src="//static.msromantic.com/212382/scala-prom-style-48571-blush.jpg" alt="Scala Prom Style 48571 BLUSH" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-prom/82454-scala-prom-style-48571-blush.html](https://www.antebrands.com/en/scala-prom/82454-scala-prom-style-48571-blush.html)

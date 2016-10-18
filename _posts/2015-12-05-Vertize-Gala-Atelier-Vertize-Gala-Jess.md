@@ -9,7 +9,7 @@ tags: [Vertize Gala Atelier]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html"><img src="//static.msromantic.com/214435/vertize-gala-jess.jpg" alt="Vertize Gala Jess" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html"><img src="//static.msromantic.com/214435/vertize-gala-jess.jpg" alt="Vertize Gala Jess" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html"><img src="//static.msromantic.com/214434/vertize-gala-jess.jpg" alt="Vertize Gala Jess" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html](https://www.readybrides.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html"><img src="//static.msromantic.com/214434/vertize-gala-jess.jpg" alt="Vertize Gala Jess" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html](https://www.antebrands.com/en/vertize-gala-atelier/83345-vertize-gala-jess.html)

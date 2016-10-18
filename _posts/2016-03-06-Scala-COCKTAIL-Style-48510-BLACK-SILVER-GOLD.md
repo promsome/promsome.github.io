@@ -9,7 +9,7 @@ tags: [Scala COCKTAIL]
 Just **$869.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html"><img src="//static.msromantic.com/212608/scala-cocktail-style-48510-black-silver-gold.jpg" alt="Scala COCKTAIL Style 48510 BLACK SILVER GOLD" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html"><img src="//static.msromantic.com/212608/scala-cocktail-style-48510-black-silver-gold.jpg" alt="Scala COCKTAIL Style 48510 BLACK SILVER GOLD" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html"><img src="//static.msromantic.com/212607/scala-cocktail-style-48510-black-silver-gold.jpg" alt="Scala COCKTAIL Style 48510 BLACK SILVER GOLD" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html](https://www.readybrides.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html"><img src="//static.msromantic.com/212607/scala-cocktail-style-48510-black-silver-gold.jpg" alt="Scala COCKTAIL Style 48510 BLACK SILVER GOLD" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html](https://www.antebrands.com/en/scala-cocktail/82503-scala-cocktail-style-48510-black-silver-gold.html)

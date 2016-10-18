@@ -9,7 +9,7 @@ tags: [Dave and Johnny]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html"><img src="//static.msromantic.com/198733/dave-and-johnny-prom-dress-947.jpg" alt="Dave and Johnny Prom Dress 947" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html"><img src="//static.msromantic.com/198733/dave-and-johnny-prom-dress-947.jpg" alt="Dave and Johnny Prom Dress 947" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html"><img src="//static.msromantic.com/198732/dave-and-johnny-prom-dress-947.jpg" alt="Dave and Johnny Prom Dress 947" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html](https://www.readybrides.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html)
+<!-- break --><a href="https://www.antebrands.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html"><img src="//static.msromantic.com/198732/dave-and-johnny-prom-dress-947.jpg" alt="Dave and Johnny Prom Dress 947" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html](https://www.antebrands.com/en/dave-and-johnny/79808-dave-and-johnny-prom-dress-947.html)

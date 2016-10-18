@@ -9,7 +9,7 @@ tags: [Papilio Kollektsiya 2013]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html"><img src="//static.msromantic.com/213844/papilio-kollektsiya-2013-style-ag313-violetta.jpg" alt="Papilio Kollektsiya 2013 Style AG313 - Violetta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html"><img src="//static.msromantic.com/213844/papilio-kollektsiya-2013-style-ag313-violetta.jpg" alt="Papilio Kollektsiya 2013 Style AG313 - Violetta" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html"><img src="//static.msromantic.com/213843/papilio-kollektsiya-2013-style-ag313-violetta.jpg" alt="Papilio Kollektsiya 2013 Style AG313 - Violetta" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html](https://www.readybrides.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html)
+<!-- break --><a href="https://www.antebrands.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html"><img src="//static.msromantic.com/213843/papilio-kollektsiya-2013-style-ag313-violetta.jpg" alt="Papilio Kollektsiya 2013 Style AG313 - Violetta" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html](https://www.antebrands.com/en/papilio-kollektsiya-2013/83061-papilio-kollektsiya-2013-style-ag313-violetta.html)

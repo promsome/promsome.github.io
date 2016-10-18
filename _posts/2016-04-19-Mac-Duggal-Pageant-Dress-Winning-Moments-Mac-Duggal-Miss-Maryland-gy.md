@@ -9,7 +9,7 @@ tags: [Mac Duggal Pageant Dress Winning Moments]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80679-mac-duggal-miss-maryland-gy.html"><img src="//static.msromantic.com/200769/mac-duggal-miss-maryland-gy.jpg" alt="Mac Duggal Miss Maryland gy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80679-mac-duggal-miss-maryland-gy.html"><img src="//static.msromantic.com/200769/mac-duggal-miss-maryland-gy.jpg" alt="Mac Duggal Miss Maryland gy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80679-mac-duggal-miss-maryland-gy.html](https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80679-mac-duggal-miss-maryland-gy.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80679-mac-duggal-miss-maryland-gy.html](https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80679-mac-duggal-miss-maryland-gy.html)

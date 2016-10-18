@@ -9,7 +9,7 @@ tags: [Papilio Swan Princess]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-swan-princess/82837-papilio-swan-princess-style-1636a-como.html"><img src="//static.msromantic.com/213441/papilio-swan-princess-style-1636a-como.jpg" alt="Papilio Swan Princess Style 1636a - Como" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-swan-princess/82837-papilio-swan-princess-style-1636a-como.html"><img src="//static.msromantic.com/213441/papilio-swan-princess-style-1636a-como.jpg" alt="Papilio Swan Princess Style 1636a - Como" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-swan-princess/82837-papilio-swan-princess-style-1636a-como.html](https://www.readybrides.com/en/papilio-swan-princess/82837-papilio-swan-princess-style-1636a-como.html)
+Buy it: [https://www.antebrands.com/en/papilio-swan-princess/82837-papilio-swan-princess-style-1636a-como.html](https://www.antebrands.com/en/papilio-swan-princess/82837-papilio-swan-princess-style-1636a-como.html)

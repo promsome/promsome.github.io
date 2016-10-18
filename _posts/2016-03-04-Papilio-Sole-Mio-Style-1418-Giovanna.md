@@ -9,7 +9,7 @@ tags: [Papilio Sole Mio]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-sole-mio/82968-papilio-sole-mio-style-1418-giovanna.html"><img src="//static.msromantic.com/213684/papilio-sole-mio-style-1418-giovanna.jpg" alt="Papilio Sole Mio Style 1418 - Giovanna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-sole-mio/82968-papilio-sole-mio-style-1418-giovanna.html"><img src="//static.msromantic.com/213684/papilio-sole-mio-style-1418-giovanna.jpg" alt="Papilio Sole Mio Style 1418 - Giovanna" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-sole-mio/82968-papilio-sole-mio-style-1418-giovanna.html](https://www.readybrides.com/en/papilio-sole-mio/82968-papilio-sole-mio-style-1418-giovanna.html)
+Buy it: [https://www.antebrands.com/en/papilio-sole-mio/82968-papilio-sole-mio-style-1418-giovanna.html](https://www.antebrands.com/en/papilio-sole-mio/82968-papilio-sole-mio-style-1418-giovanna.html)

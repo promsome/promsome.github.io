@@ -9,7 +9,7 @@ tags: [Vertize Gala Couture]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html"><img src="//static.msromantic.com/214489/vertize-gala-faustine.jpg" alt="Vertize Gala Faustine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html"><img src="//static.msromantic.com/214489/vertize-gala-faustine.jpg" alt="Vertize Gala Faustine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html"><img src="//static.msromantic.com/214488/vertize-gala-faustine.jpg" alt="Vertize Gala Faustine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html](https://www.readybrides.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html"><img src="//static.msromantic.com/214488/vertize-gala-faustine.jpg" alt="Vertize Gala Faustine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html](https://www.antebrands.com/en/vertize-gala-couture/83374-vertize-gala-faustine.html)

@@ -9,7 +9,7 @@ tags: [Scala COCKTAIL]
 Just **$609.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html"><img src="//static.msromantic.com/212631/scala-cocktail-style-48534-platinum.jpg" alt="Scala COCKTAIL Style 48534 PLATINUM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html"><img src="//static.msromantic.com/212631/scala-cocktail-style-48534-platinum.jpg" alt="Scala COCKTAIL Style 48534 PLATINUM" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html"><img src="//static.msromantic.com/212630/scala-cocktail-style-48534-platinum.jpg" alt="Scala COCKTAIL Style 48534 PLATINUM" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html](https://www.readybrides.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html"><img src="//static.msromantic.com/212630/scala-cocktail-style-48534-platinum.jpg" alt="Scala COCKTAIL Style 48534 PLATINUM" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html](https://www.antebrands.com/en/scala-cocktail/82508-scala-cocktail-style-48534-platinum.html)

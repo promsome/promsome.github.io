@@ -9,7 +9,7 @@ tags: [Vertize Gala Couture]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html"><img src="//static.msromantic.com/214487/vertize-gala-felicia.jpg" alt="Vertize Gala Felicia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html"><img src="//static.msromantic.com/214487/vertize-gala-felicia.jpg" alt="Vertize Gala Felicia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html"><img src="//static.msromantic.com/214486/vertize-gala-felicia.jpg" alt="Vertize Gala Felicia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html](https://www.readybrides.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html"><img src="//static.msromantic.com/214486/vertize-gala-felicia.jpg" alt="Vertize Gala Felicia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html](https://www.antebrands.com/en/vertize-gala-couture/83373-vertize-gala-felicia.html)

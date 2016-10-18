@@ -9,7 +9,7 @@ tags: [Mac Duggal Pageant Dress Winning Moments]
 Just **$799.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80668-mac-duggal-miss-peru.html"><img src="//static.msromantic.com/200758/mac-duggal-miss-peru.jpg" alt="Mac Duggal miss peru" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80668-mac-duggal-miss-peru.html"><img src="//static.msromantic.com/200758/mac-duggal-miss-peru.jpg" alt="Mac Duggal miss peru" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80668-mac-duggal-miss-peru.html](https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80668-mac-duggal-miss-peru.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80668-mac-duggal-miss-peru.html](https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80668-mac-duggal-miss-peru.html)

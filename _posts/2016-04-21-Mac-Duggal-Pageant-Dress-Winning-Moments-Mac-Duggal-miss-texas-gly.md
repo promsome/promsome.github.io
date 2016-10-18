@@ -9,7 +9,7 @@ tags: [Mac Duggal Pageant Dress Winning Moments]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80681-mac-duggal-miss-texas-gly.html"><img src="//static.msromantic.com/200771/mac-duggal-miss-texas-gly.jpg" alt="Mac Duggal miss texas gly" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80681-mac-duggal-miss-texas-gly.html"><img src="//static.msromantic.com/200771/mac-duggal-miss-texas-gly.jpg" alt="Mac Duggal miss texas gly" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80681-mac-duggal-miss-texas-gly.html](https://www.readybrides.com/en/mac-duggal-pageant-dress-winning-moments/80681-mac-duggal-miss-texas-gly.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80681-mac-duggal-miss-texas-gly.html](https://www.antebrands.com/en/mac-duggal-pageant-dress-winning-moments/80681-mac-duggal-miss-texas-gly.html)

@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83388-vertize-gala-edna.html"><img src="//static.msromantic.com/214513/vertize-gala-edna.jpg" alt="Vertize Gala Edna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83388-vertize-gala-edna.html"><img src="//static.msromantic.com/214513/vertize-gala-edna.jpg" alt="Vertize Gala Edna" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83388-vertize-gala-edna.html](https://www.readybrides.com/en/vertize-gala-privee/83388-vertize-gala-edna.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83388-vertize-gala-edna.html](https://www.antebrands.com/en/vertize-gala-privee/83388-vertize-gala-edna.html)

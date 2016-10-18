@@ -9,7 +9,7 @@ tags: [Papilio Hellas]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html"><img src="//static.msromantic.com/213593/papilio-hellas-style-1536l-kinphia.jpg" alt="Papilio Hellas Style 1536L - Kinphia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html"><img src="//static.msromantic.com/213593/papilio-hellas-style-1536l-kinphia.jpg" alt="Papilio Hellas Style 1536L - Kinphia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html"><img src="//static.msromantic.com/213592/papilio-hellas-style-1536l-kinphia.jpg" alt="Papilio Hellas Style 1536L - Kinphia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html](https://www.readybrides.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html)
+<!-- break --><a href="https://www.antebrands.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html"><img src="//static.msromantic.com/213592/papilio-hellas-style-1536l-kinphia.jpg" alt="Papilio Hellas Style 1536L - Kinphia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html](https://www.antebrands.com/en/papilio-hellas/82914-papilio-hellas-style-1536l-kinphia.html)

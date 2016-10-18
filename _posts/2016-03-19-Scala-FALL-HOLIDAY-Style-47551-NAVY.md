@@ -9,7 +9,7 @@ tags: [Scala FALL HOLIDAY]
 Just **$739.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html"><img src="//static.msromantic.com/212660/scala-fall-holiday-style-47551-navy.jpg" alt="Scala FALL HOLIDAY Style 47551 NAVY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html"><img src="//static.msromantic.com/212660/scala-fall-holiday-style-47551-navy.jpg" alt="Scala FALL HOLIDAY Style 47551 NAVY" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html"><img src="//static.msromantic.com/212659/scala-fall-holiday-style-47551-navy.jpg" alt="Scala FALL HOLIDAY Style 47551 NAVY" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html](https://www.readybrides.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html"><img src="//static.msromantic.com/212659/scala-fall-holiday-style-47551-navy.jpg" alt="Scala FALL HOLIDAY Style 47551 NAVY" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html](https://www.antebrands.com/en/scala-fall-holiday/82516-scala-fall-holiday-style-47551-navy.html)

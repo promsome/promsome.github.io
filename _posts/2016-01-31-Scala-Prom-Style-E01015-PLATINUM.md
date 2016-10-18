@@ -9,7 +9,7 @@ tags: [Scala Prom]
 Just **$1079.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html"><img src="//static.msromantic.com/212455/scala-prom-style-e01015-platinum.jpg" alt="Scala Prom Style E01015 PLATINUM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html"><img src="//static.msromantic.com/212455/scala-prom-style-e01015-platinum.jpg" alt="Scala Prom Style E01015 PLATINUM" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html"><img src="//static.msromantic.com/212454/scala-prom-style-e01015-platinum.jpg" alt="Scala Prom Style E01015 PLATINUM" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html](https://www.readybrides.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html"><img src="//static.msromantic.com/212454/scala-prom-style-e01015-platinum.jpg" alt="Scala Prom Style E01015 PLATINUM" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html](https://www.antebrands.com/en/scala-prom/82468-scala-prom-style-e01015-platinum.html)

@@ -9,9 +9,9 @@ tags: [Primavera Bridesmaid]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203895/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203895/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203896/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203897/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203894/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html](https://www.readybrides.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html)
+<!-- break --><a href="https://www.antebrands.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203896/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203897/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html"><img src="//static.msromantic.com/203894/primavera-bridesmaid-style-1255.jpg" alt="Primavera Bridesmaid Style 1255" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html](https://www.antebrands.com/en/primavera-bridesmaid/81606-primavera-bridesmaid-style-1255.html)

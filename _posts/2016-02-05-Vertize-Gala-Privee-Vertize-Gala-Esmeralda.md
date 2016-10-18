@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$539.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html"><img src="//static.msromantic.com/214544/vertize-gala-esmeralda.jpg" alt="Vertize Gala Esmeralda" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html"><img src="//static.msromantic.com/214544/vertize-gala-esmeralda.jpg" alt="Vertize Gala Esmeralda" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html"><img src="//static.msromantic.com/214543/vertize-gala-esmeralda.jpg" alt="Vertize Gala Esmeralda" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html](https://www.readybrides.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html"><img src="//static.msromantic.com/214543/vertize-gala-esmeralda.jpg" alt="Vertize Gala Esmeralda" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html](https://www.antebrands.com/en/vertize-gala-privee/83407-vertize-gala-esmeralda.html)

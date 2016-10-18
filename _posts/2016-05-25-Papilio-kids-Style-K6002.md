@@ -9,7 +9,7 @@ tags: [Papilio kids]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-kids/82583-papilio-kids-style-k6002.html"><img src="//static.msromantic.com/213021/papilio-kids-style-k6002.jpg" alt="Papilio kids Style K6002" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-kids/82583-papilio-kids-style-k6002.html"><img src="//static.msromantic.com/213021/papilio-kids-style-k6002.jpg" alt="Papilio kids Style K6002" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-kids/82583-papilio-kids-style-k6002.html](https://www.readybrides.com/en/papilio-kids/82583-papilio-kids-style-k6002.html)
+Buy it: [https://www.antebrands.com/en/papilio-kids/82583-papilio-kids-style-k6002.html](https://www.antebrands.com/en/papilio-kids/82583-papilio-kids-style-k6002.html)

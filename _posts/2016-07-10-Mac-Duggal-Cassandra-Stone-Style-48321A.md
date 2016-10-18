@@ -9,7 +9,7 @@ tags: [Mac Duggal Cassandra Stone]
 Just **$559.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-cassandra-stone/80294-mac-duggal-cassandra-stone-style-48321a.html"><img src="//static.msromantic.com/199825/mac-duggal-cassandra-stone-style-48321a.jpg" alt="Mac Duggal Cassandra Stone Style 48321A" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-cassandra-stone/80294-mac-duggal-cassandra-stone-style-48321a.html"><img src="//static.msromantic.com/199825/mac-duggal-cassandra-stone-style-48321a.jpg" alt="Mac Duggal Cassandra Stone Style 48321A" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mac-duggal-cassandra-stone/80294-mac-duggal-cassandra-stone-style-48321a.html](https://www.readybrides.com/en/mac-duggal-cassandra-stone/80294-mac-duggal-cassandra-stone-style-48321a.html)
+Buy it: [https://www.antebrands.com/en/mac-duggal-cassandra-stone/80294-mac-duggal-cassandra-stone-style-48321a.html](https://www.antebrands.com/en/mac-duggal-cassandra-stone/80294-mac-duggal-cassandra-stone-style-48321a.html)

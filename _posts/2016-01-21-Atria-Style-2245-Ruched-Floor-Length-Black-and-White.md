@@ -9,9 +9,9 @@ tags: [Atria]
 Just **$269.00**
 ### 
 
-<a href="https://www.readybrides.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197371/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197371/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197372/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197373/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197370/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html](https://www.readybrides.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html)
+<!-- break --><a href="https://www.antebrands.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197372/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197373/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html"><img src="//static.msromantic.com/197370/atria-style-2245-ruched-floor-length-black-and-white.jpg" alt="Atria Style 2245 Ruched Floor Length Black and White" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html](https://www.antebrands.com/en/atria/79189-atria-style-2245-ruched-floor-length-black-and-white.html)

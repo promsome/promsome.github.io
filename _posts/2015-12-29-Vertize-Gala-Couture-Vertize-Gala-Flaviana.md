@@ -9,7 +9,7 @@ tags: [Vertize Gala Couture]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-couture/83369-vertize-gala-flaviana.html"><img src="//static.msromantic.com/214480/vertize-gala-flaviana.jpg" alt="Vertize Gala Flaviana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-couture/83369-vertize-gala-flaviana.html"><img src="//static.msromantic.com/214480/vertize-gala-flaviana.jpg" alt="Vertize Gala Flaviana" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-couture/83369-vertize-gala-flaviana.html](https://www.readybrides.com/en/vertize-gala-couture/83369-vertize-gala-flaviana.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-couture/83369-vertize-gala-flaviana.html](https://www.antebrands.com/en/vertize-gala-couture/83369-vertize-gala-flaviana.html)

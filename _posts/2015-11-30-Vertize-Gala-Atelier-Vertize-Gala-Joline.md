@@ -9,7 +9,7 @@ tags: [Vertize Gala Atelier]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-atelier/83340-vertize-gala-joline.html"><img src="//static.msromantic.com/214426/vertize-gala-joline.jpg" alt="Vertize Gala Joline" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-atelier/83340-vertize-gala-joline.html"><img src="//static.msromantic.com/214426/vertize-gala-joline.jpg" alt="Vertize Gala Joline" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-atelier/83340-vertize-gala-joline.html](https://www.readybrides.com/en/vertize-gala-atelier/83340-vertize-gala-joline.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-atelier/83340-vertize-gala-joline.html](https://www.antebrands.com/en/vertize-gala-atelier/83340-vertize-gala-joline.html)

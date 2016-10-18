@@ -9,7 +9,7 @@ tags: [Vertize Gala Atelier]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html"><img src="//static.msromantic.com/214411/vertize-gala-jaqueline.jpg" alt="Vertize Gala Jaqueline" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html"><img src="//static.msromantic.com/214411/vertize-gala-jaqueline.jpg" alt="Vertize Gala Jaqueline" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html"><img src="//static.msromantic.com/214410/vertize-gala-jaqueline.jpg" alt="Vertize Gala Jaqueline" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html](https://www.readybrides.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html"><img src="//static.msromantic.com/214410/vertize-gala-jaqueline.jpg" alt="Vertize Gala Jaqueline" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html](https://www.antebrands.com/en/vertize-gala-atelier/83331-vertize-gala-jaqueline.html)

@@ -9,7 +9,7 @@ tags: [Scala Prom]
 Just **$929.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html"><img src="//static.msromantic.com/212079/scala-prom-style-48583-black-nude.jpg" alt="Scala Prom Style 48583 BLACK NUDE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html"><img src="//static.msromantic.com/212079/scala-prom-style-48583-black-nude.jpg" alt="Scala Prom Style 48583 BLACK NUDE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html"><img src="//static.msromantic.com/212078/scala-prom-style-48583-black-nude.jpg" alt="Scala Prom Style 48583 BLACK NUDE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html](https://www.readybrides.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html"><img src="//static.msromantic.com/212078/scala-prom-style-48583-black-nude.jpg" alt="Scala Prom Style 48583 BLACK NUDE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html](https://www.antebrands.com/en/scala-prom/82419-scala-prom-style-48583-black-nude.html)

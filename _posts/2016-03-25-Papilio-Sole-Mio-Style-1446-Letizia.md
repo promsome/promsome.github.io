@@ -9,7 +9,7 @@ tags: [Papilio Sole Mio]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-sole-mio/82989-papilio-sole-mio-style-1446-letizia.html"><img src="//static.msromantic.com/213718/papilio-sole-mio-style-1446-letizia.jpg" alt="Papilio Sole Mio Style 1446 - Letizia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-sole-mio/82989-papilio-sole-mio-style-1446-letizia.html"><img src="//static.msromantic.com/213718/papilio-sole-mio-style-1446-letizia.jpg" alt="Papilio Sole Mio Style 1446 - Letizia" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-sole-mio/82989-papilio-sole-mio-style-1446-letizia.html](https://www.readybrides.com/en/papilio-sole-mio/82989-papilio-sole-mio-style-1446-letizia.html)
+Buy it: [https://www.antebrands.com/en/papilio-sole-mio/82989-papilio-sole-mio-style-1446-letizia.html](https://www.antebrands.com/en/papilio-sole-mio/82989-papilio-sole-mio-style-1446-letizia.html)

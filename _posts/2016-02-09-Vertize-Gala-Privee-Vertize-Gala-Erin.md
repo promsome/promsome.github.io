@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$629.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83411-vertize-gala-erin.html"><img src="//static.msromantic.com/214549/vertize-gala-erin.jpg" alt="Vertize Gala Erin" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83411-vertize-gala-erin.html"><img src="//static.msromantic.com/214549/vertize-gala-erin.jpg" alt="Vertize Gala Erin" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83411-vertize-gala-erin.html](https://www.readybrides.com/en/vertize-gala-privee/83411-vertize-gala-erin.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83411-vertize-gala-erin.html](https://www.antebrands.com/en/vertize-gala-privee/83411-vertize-gala-erin.html)

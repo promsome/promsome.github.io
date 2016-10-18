@@ -9,7 +9,7 @@ tags: [Vertize Gala Talla Grande]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-talla-grande/83664-vertize-gala-coleccion-marfil-2015.html"><img src="//static.msromantic.com/214820/vertize-gala-coleccion-marfil-2015.jpg" alt="Vertize Gala Colección Marfil 2015" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-talla-grande/83664-vertize-gala-coleccion-marfil-2015.html"><img src="//static.msromantic.com/214820/vertize-gala-coleccion-marfil-2015.jpg" alt="Vertize Gala Colección Marfil 2015" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-talla-grande/83664-vertize-gala-coleccion-marfil-2015.html](https://www.readybrides.com/en/vertize-gala-talla-grande/83664-vertize-gala-coleccion-marfil-2015.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-talla-grande/83664-vertize-gala-coleccion-marfil-2015.html](https://www.antebrands.com/en/vertize-gala-talla-grande/83664-vertize-gala-coleccion-marfil-2015.html)

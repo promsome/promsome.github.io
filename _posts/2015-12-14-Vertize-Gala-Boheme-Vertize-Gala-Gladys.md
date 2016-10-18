@@ -9,7 +9,7 @@ tags: [Vertize Gala Boheme]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html"><img src="//static.msromantic.com/214451/vertize-gala-gladys.jpg" alt="Vertize Gala Gladys" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html"><img src="//static.msromantic.com/214451/vertize-gala-gladys.jpg" alt="Vertize Gala Gladys" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html"><img src="//static.msromantic.com/214450/vertize-gala-gladys.jpg" alt="Vertize Gala Gladys" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html](https://www.readybrides.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html"><img src="//static.msromantic.com/214450/vertize-gala-gladys.jpg" alt="Vertize Gala Gladys" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html](https://www.antebrands.com/en/vertize-gala-boheme/83354-vertize-gala-gladys.html)

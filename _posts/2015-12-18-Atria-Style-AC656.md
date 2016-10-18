@@ -9,7 +9,7 @@ tags: [Atria]
 Just **$396.00**
 ### 
 
-<a href="https://www.readybrides.com/en/atria/79155-atria-style-ac656.html"><img src="//static.msromantic.com/197260/atria-style-ac656.jpg" alt="Atria Style AC656" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atria/79155-atria-style-ac656.html"><img src="//static.msromantic.com/197260/atria-style-ac656.jpg" alt="Atria Style AC656" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/atria/79155-atria-style-ac656.html"><img src="//static.msromantic.com/197259/atria-style-ac656.jpg" alt="Atria Style AC656" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/atria/79155-atria-style-ac656.html](https://www.readybrides.com/en/atria/79155-atria-style-ac656.html)
+<!-- break --><a href="https://www.antebrands.com/en/atria/79155-atria-style-ac656.html"><img src="//static.msromantic.com/197259/atria-style-ac656.jpg" alt="Atria Style AC656" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/atria/79155-atria-style-ac656.html](https://www.antebrands.com/en/atria/79155-atria-style-ac656.html)

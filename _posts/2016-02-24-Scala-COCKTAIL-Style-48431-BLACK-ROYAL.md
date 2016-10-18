@@ -9,7 +9,7 @@ tags: [Scala COCKTAIL]
 Just **$859.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html"><img src="//static.msromantic.com/212565/scala-cocktail-style-48431-black-royal.jpg" alt="Scala COCKTAIL Style 48431 BLACK ROYAL" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html"><img src="//static.msromantic.com/212565/scala-cocktail-style-48431-black-royal.jpg" alt="Scala COCKTAIL Style 48431 BLACK ROYAL" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html"><img src="//static.msromantic.com/212564/scala-cocktail-style-48431-black-royal.jpg" alt="Scala COCKTAIL Style 48431 BLACK ROYAL" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html](https://www.readybrides.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html"><img src="//static.msromantic.com/212564/scala-cocktail-style-48431-black-royal.jpg" alt="Scala COCKTAIL Style 48431 BLACK ROYAL" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html](https://www.antebrands.com/en/scala-cocktail/82492-scala-cocktail-style-48431-black-royal.html)

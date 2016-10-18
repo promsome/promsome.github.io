@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83405-vertize-gala-esther.html"><img src="//static.msromantic.com/214541/vertize-gala-esther.jpg" alt="Vertize Gala Esther" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83405-vertize-gala-esther.html"><img src="//static.msromantic.com/214541/vertize-gala-esther.jpg" alt="Vertize Gala Esther" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-privee/83405-vertize-gala-esther.html"><img src="//static.msromantic.com/214540/vertize-gala-esther.jpg" alt="Vertize Gala Esther" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83405-vertize-gala-esther.html](https://www.readybrides.com/en/vertize-gala-privee/83405-vertize-gala-esther.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-privee/83405-vertize-gala-esther.html"><img src="//static.msromantic.com/214540/vertize-gala-esther.jpg" alt="Vertize Gala Esther" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83405-vertize-gala-esther.html](https://www.antebrands.com/en/vertize-gala-privee/83405-vertize-gala-esther.html)

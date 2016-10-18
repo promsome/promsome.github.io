@@ -9,8 +9,8 @@ tags: [Mac Duggal Couture Dresses]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html"><img src="//static.msromantic.com/200683/mac-duggal-couture-dresses-style-78976d.jpg" alt="Mac Duggal Couture Dresses Style 78976D" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html"><img src="//static.msromantic.com/200683/mac-duggal-couture-dresses-style-78976d.jpg" alt="Mac Duggal Couture Dresses Style 78976D" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html"><img src="//static.msromantic.com/200684/mac-duggal-couture-dresses-style-78976d.jpg" alt="Mac Duggal Couture Dresses Style 78976D" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html"><img src="//static.msromantic.com/200682/mac-duggal-couture-dresses-style-78976d.jpg" alt="Mac Duggal Couture Dresses Style 78976D" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html](https://www.readybrides.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html)
+<!-- break --><a href="https://www.antebrands.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html"><img src="//static.msromantic.com/200684/mac-duggal-couture-dresses-style-78976d.jpg" alt="Mac Duggal Couture Dresses Style 78976D" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html"><img src="//static.msromantic.com/200682/mac-duggal-couture-dresses-style-78976d.jpg" alt="Mac Duggal Couture Dresses Style 78976D" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html](https://www.antebrands.com/en/mac-duggal-couture-dresses/80634-mac-duggal-couture-dresses-style-78976d.html)

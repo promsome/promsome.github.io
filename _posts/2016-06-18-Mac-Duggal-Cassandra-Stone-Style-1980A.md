@@ -9,7 +9,7 @@ tags: [Mac Duggal Cassandra Stone]
 Just **$589.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html"><img src="//static.msromantic.com/199772/mac-duggal-cassandra-stone-style-1980a.jpg" alt="Mac Duggal Cassandra Stone Style 1980A" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html"><img src="//static.msromantic.com/199772/mac-duggal-cassandra-stone-style-1980a.jpg" alt="Mac Duggal Cassandra Stone Style 1980A" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html"><img src="//static.msromantic.com/199771/mac-duggal-cassandra-stone-style-1980a.jpg" alt="Mac Duggal Cassandra Stone Style 1980A" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html](https://www.readybrides.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html)
+<!-- break --><a href="https://www.antebrands.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html"><img src="//static.msromantic.com/199771/mac-duggal-cassandra-stone-style-1980a.jpg" alt="Mac Duggal Cassandra Stone Style 1980A" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html](https://www.antebrands.com/en/mac-duggal-cassandra-stone/80272-mac-duggal-cassandra-stone-style-1980a.html)

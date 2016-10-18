@@ -9,8 +9,8 @@ tags: [Mac Duggal Cassandra Stone]
 Just **$559.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html"><img src="//static.msromantic.com/199752/mac-duggal-cassandra-stone-style-4390a.jpg" alt="Mac Duggal Cassandra Stone Style 4390A" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html"><img src="//static.msromantic.com/199752/mac-duggal-cassandra-stone-style-4390a.jpg" alt="Mac Duggal Cassandra Stone Style 4390A" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html"><img src="//static.msromantic.com/199753/mac-duggal-cassandra-stone-style-4390a.jpg" alt="Mac Duggal Cassandra Stone Style 4390A" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html"><img src="//static.msromantic.com/199751/mac-duggal-cassandra-stone-style-4390a.jpg" alt="Mac Duggal Cassandra Stone Style 4390A" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html](https://www.readybrides.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html)
+<!-- break --><a href="https://www.antebrands.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html"><img src="//static.msromantic.com/199753/mac-duggal-cassandra-stone-style-4390a.jpg" alt="Mac Duggal Cassandra Stone Style 4390A" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html"><img src="//static.msromantic.com/199751/mac-duggal-cassandra-stone-style-4390a.jpg" alt="Mac Duggal Cassandra Stone Style 4390A" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html](https://www.antebrands.com/en/mac-duggal-cassandra-stone/80265-mac-duggal-cassandra-stone-style-4390a.html)

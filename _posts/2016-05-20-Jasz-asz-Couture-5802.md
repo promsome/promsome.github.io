@@ -9,7 +9,7 @@ tags: [Jasz]
 Just **$499.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jasz/79776-jasz-asz-couture-5802.html"><img src="//static.msromantic.com/198655/jasz-asz-couture-5802.jpg" alt="Jasz asz Couture 5802" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jasz/79776-jasz-asz-couture-5802.html"><img src="//static.msromantic.com/198655/jasz-asz-couture-5802.jpg" alt="Jasz asz Couture 5802" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jasz/79776-jasz-asz-couture-5802.html"><img src="//static.msromantic.com/198654/jasz-asz-couture-5802.jpg" alt="Jasz asz Couture 5802" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jasz/79776-jasz-asz-couture-5802.html](https://www.readybrides.com/en/jasz/79776-jasz-asz-couture-5802.html)
+<!-- break --><a href="https://www.antebrands.com/en/jasz/79776-jasz-asz-couture-5802.html"><img src="//static.msromantic.com/198654/jasz-asz-couture-5802.jpg" alt="Jasz asz Couture 5802" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jasz/79776-jasz-asz-couture-5802.html](https://www.antebrands.com/en/jasz/79776-jasz-asz-couture-5802.html)

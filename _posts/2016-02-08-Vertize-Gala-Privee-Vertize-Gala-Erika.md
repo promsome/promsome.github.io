@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83410-vertize-gala-erika.html"><img src="//static.msromantic.com/214548/vertize-gala-erika.jpg" alt="Vertize Gala Erika" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83410-vertize-gala-erika.html"><img src="//static.msromantic.com/214548/vertize-gala-erika.jpg" alt="Vertize Gala Erika" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83410-vertize-gala-erika.html](https://www.readybrides.com/en/vertize-gala-privee/83410-vertize-gala-erika.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83410-vertize-gala-erika.html](https://www.antebrands.com/en/vertize-gala-privee/83410-vertize-gala-erika.html)

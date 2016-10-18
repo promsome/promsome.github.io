@@ -9,7 +9,7 @@ tags: [Vertize Gala Atelier]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-atelier/83351-vertize-gala-jade.html"><img src="//static.msromantic.com/214445/vertize-gala-jade.jpg" alt="Vertize Gala Jade" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-atelier/83351-vertize-gala-jade.html"><img src="//static.msromantic.com/214445/vertize-gala-jade.jpg" alt="Vertize Gala Jade" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-atelier/83351-vertize-gala-jade.html](https://www.readybrides.com/en/vertize-gala-atelier/83351-vertize-gala-jade.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-atelier/83351-vertize-gala-jade.html](https://www.antebrands.com/en/vertize-gala-atelier/83351-vertize-gala-jade.html)

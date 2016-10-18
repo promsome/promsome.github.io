@@ -9,7 +9,7 @@ tags: [Papilio Hellas]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-hellas/82877-papilio-hellas-style-1508la-athena.html"><img src="//static.msromantic.com/213521/papilio-hellas-style-1508la-athena.jpg" alt="Papilio Hellas Style 1508La - Athena" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-hellas/82877-papilio-hellas-style-1508la-athena.html"><img src="//static.msromantic.com/213521/papilio-hellas-style-1508la-athena.jpg" alt="Papilio Hellas Style 1508La - Athena" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-hellas/82877-papilio-hellas-style-1508la-athena.html](https://www.readybrides.com/en/papilio-hellas/82877-papilio-hellas-style-1508la-athena.html)
+Buy it: [https://www.antebrands.com/en/papilio-hellas/82877-papilio-hellas-style-1508la-athena.html](https://www.antebrands.com/en/papilio-hellas/82877-papilio-hellas-style-1508la-athena.html)

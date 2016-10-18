@@ -9,7 +9,7 @@ tags: [Scala COCKTAIL]
 Just **$779.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html"><img src="//static.msromantic.com/212601/scala-cocktail-style-48508-midnight-blue.jpg" alt="Scala COCKTAIL Style 48508 MIDNIGHT BLUE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html"><img src="//static.msromantic.com/212601/scala-cocktail-style-48508-midnight-blue.jpg" alt="Scala COCKTAIL Style 48508 MIDNIGHT BLUE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html"><img src="//static.msromantic.com/212600/scala-cocktail-style-48508-midnight-blue.jpg" alt="Scala COCKTAIL Style 48508 MIDNIGHT BLUE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html](https://www.readybrides.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html"><img src="//static.msromantic.com/212600/scala-cocktail-style-48508-midnight-blue.jpg" alt="Scala COCKTAIL Style 48508 MIDNIGHT BLUE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html](https://www.antebrands.com/en/scala-cocktail/82501-scala-cocktail-style-48508-midnight-blue.html)

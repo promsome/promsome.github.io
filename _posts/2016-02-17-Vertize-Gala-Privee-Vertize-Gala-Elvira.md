@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83419-vertize-gala-elvira.html"><img src="//static.msromantic.com/214562/vertize-gala-elvira.jpg" alt="Vertize Gala Elvira" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83419-vertize-gala-elvira.html"><img src="//static.msromantic.com/214562/vertize-gala-elvira.jpg" alt="Vertize Gala Elvira" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83419-vertize-gala-elvira.html](https://www.readybrides.com/en/vertize-gala-privee/83419-vertize-gala-elvira.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83419-vertize-gala-elvira.html](https://www.antebrands.com/en/vertize-gala-privee/83419-vertize-gala-elvira.html)

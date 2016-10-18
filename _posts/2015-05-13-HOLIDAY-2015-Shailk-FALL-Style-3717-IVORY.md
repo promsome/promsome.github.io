@@ -9,8 +9,8 @@ tags: [HOLIDAY 2015]
 Just **$969.99**
 ### 
 
-<a href="https://www.readybrides.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html"><img src="//static.msromantic.com/205956/shailk-fall-holiday-2015-style-3717-ivory.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3717 IVORY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html"><img src="//static.msromantic.com/205956/shailk-fall-holiday-2015-style-3717-ivory.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3717 IVORY" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html"><img src="//static.msromantic.com/205957/shailk-fall-holiday-2015-style-3717-ivory.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3717 IVORY" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html"><img src="//static.msromantic.com/205955/shailk-fall-holiday-2015-style-3717-ivory.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3717 IVORY" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html](https://www.readybrides.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html)
+<!-- break --><a href="https://www.antebrands.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html"><img src="//static.msromantic.com/205957/shailk-fall-holiday-2015-style-3717-ivory.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3717 IVORY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html"><img src="//static.msromantic.com/205955/shailk-fall-holiday-2015-style-3717-ivory.jpg" alt="Shailk FALL HOLIDAY 2015   Style 3717 IVORY" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html](https://www.antebrands.com/en/holiday-2015/81738-shailk-fall-holiday-2015-style-3717-ivory.html)

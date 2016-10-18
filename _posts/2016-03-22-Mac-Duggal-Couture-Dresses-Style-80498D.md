@@ -9,7 +9,7 @@ tags: [Mac Duggal Couture Dresses]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html"><img src="//static.msromantic.com/200724/mac-duggal-couture-dresses-style-80498d.jpg" alt="Mac Duggal Couture Dresses Style 80498D" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html"><img src="//static.msromantic.com/200724/mac-duggal-couture-dresses-style-80498d.jpg" alt="Mac Duggal Couture Dresses Style 80498D" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html"><img src="//static.msromantic.com/200723/mac-duggal-couture-dresses-style-80498d.jpg" alt="Mac Duggal Couture Dresses Style 80498D" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html](https://www.readybrides.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html)
+<!-- break --><a href="https://www.antebrands.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html"><img src="//static.msromantic.com/200723/mac-duggal-couture-dresses-style-80498d.jpg" alt="Mac Duggal Couture Dresses Style 80498D" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html](https://www.antebrands.com/en/mac-duggal-couture-dresses/80651-mac-duggal-couture-dresses-style-80498d.html)

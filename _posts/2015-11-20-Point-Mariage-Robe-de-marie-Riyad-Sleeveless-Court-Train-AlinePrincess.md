@@ -9,8 +9,8 @@ tags: [Point Mariage,Aline/Princess ,Strapless,Court Train,Sleeveless]
 Just **$428.83**
 ###   Sleeveless Court Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Point Mariage</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html"><img src="//static.msromantic.com/215135/point-mariage-robe-de-mariee-riyad.jpg" alt="Point Mariage Robe de mariée Riyad" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html"><img src="//static.msromantic.com/215135/point-mariage-robe-de-mariee-riyad.jpg" alt="Point Mariage Robe de mariée Riyad" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html"><img src="//static.msromantic.com/215136/point-mariage-robe-de-mariee-riyad.jpg" alt="Point Mariage Robe de mariée Riyad" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html"><img src="//static.msromantic.com/215134/point-mariage-robe-de-mariee-riyad.jpg" alt="Point Mariage Robe de mariée Riyad" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html](https://www.readybrides.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html)
+<!-- break --><a href="https://www.antebrands.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html"><img src="//static.msromantic.com/215136/point-mariage-robe-de-mariee-riyad.jpg" alt="Point Mariage Robe de mariée Riyad" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html"><img src="//static.msromantic.com/215134/point-mariage-robe-de-mariee-riyad.jpg" alt="Point Mariage Robe de mariée Riyad" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html](https://www.antebrands.com/en/point-mariage/83797-point-mariage-robe-de-mariee-riyad.html)

@@ -9,7 +9,7 @@ tags: [Atria]
 Just **$239.00**
 ### 
 
-<a href="https://www.readybrides.com/en/atria/79291-atria-style-1530-one-sholder-rhinestone-dress.html"><img src="//static.msromantic.com/197660/atria-style-1530-one-sholder-rhinestone-dress.jpg" alt="Atria Style 1530 One Sholder Rhinestone Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atria/79291-atria-style-1530-one-sholder-rhinestone-dress.html"><img src="//static.msromantic.com/197660/atria-style-1530-one-sholder-rhinestone-dress.jpg" alt="Atria Style 1530 One Sholder Rhinestone Dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atria/79291-atria-style-1530-one-sholder-rhinestone-dress.html](https://www.readybrides.com/en/atria/79291-atria-style-1530-one-sholder-rhinestone-dress.html)
+Buy it: [https://www.antebrands.com/en/atria/79291-atria-style-1530-one-sholder-rhinestone-dress.html](https://www.antebrands.com/en/atria/79291-atria-style-1530-one-sholder-rhinestone-dress.html)

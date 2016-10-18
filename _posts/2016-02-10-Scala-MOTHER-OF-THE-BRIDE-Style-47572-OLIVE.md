@@ -9,7 +9,7 @@ tags: [Scala MOTHER OF THE BRIDE]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html"><img src="//static.msromantic.com/212497/scala-mother-of-the-bride-style-47572-olive.jpg" alt="Scala MOTHER OF THE BRIDE Style 47572 OLIVE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html"><img src="//static.msromantic.com/212497/scala-mother-of-the-bride-style-47572-olive.jpg" alt="Scala MOTHER OF THE BRIDE Style 47572 OLIVE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html"><img src="//static.msromantic.com/212496/scala-mother-of-the-bride-style-47572-olive.jpg" alt="Scala MOTHER OF THE BRIDE Style 47572 OLIVE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html](https://www.readybrides.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html"><img src="//static.msromantic.com/212496/scala-mother-of-the-bride-style-47572-olive.jpg" alt="Scala MOTHER OF THE BRIDE Style 47572 OLIVE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html](https://www.antebrands.com/en/scala-mother-of-the-bride/82478-scala-mother-of-the-bride-style-47572-olive.html)

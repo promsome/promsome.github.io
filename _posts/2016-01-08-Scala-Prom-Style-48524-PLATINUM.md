@@ -9,7 +9,7 @@ tags: [Scala Prom]
 Just **$1009.99**
 ### 
 
-<a href="https://www.readybrides.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html"><img src="//static.msromantic.com/212343/scala-prom-style-48524-platinum.jpg" alt="Scala Prom Style 48524 PLATINUM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html"><img src="//static.msromantic.com/212343/scala-prom-style-48524-platinum.jpg" alt="Scala Prom Style 48524 PLATINUM" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html"><img src="//static.msromantic.com/212342/scala-prom-style-48524-platinum.jpg" alt="Scala Prom Style 48524 PLATINUM" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html](https://www.readybrides.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html)
+<!-- break --><a href="https://www.antebrands.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html"><img src="//static.msromantic.com/212342/scala-prom-style-48524-platinum.jpg" alt="Scala Prom Style 48524 PLATINUM" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html](https://www.antebrands.com/en/scala-prom/82445-scala-prom-style-48524-platinum.html)

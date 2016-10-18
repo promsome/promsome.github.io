@@ -9,8 +9,8 @@ tags: [Vertize Gala Boheme]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html"><img src="//static.msromantic.com/214462/vertize-gala-geraldine.jpg" alt="Vertize Gala Geraldine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html"><img src="//static.msromantic.com/214462/vertize-gala-geraldine.jpg" alt="Vertize Gala Geraldine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html"><img src="//static.msromantic.com/214463/vertize-gala-geraldine.jpg" alt="Vertize Gala Geraldine" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html"><img src="//static.msromantic.com/214461/vertize-gala-geraldine.jpg" alt="Vertize Gala Geraldine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html](https://www.readybrides.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html"><img src="//static.msromantic.com/214463/vertize-gala-geraldine.jpg" alt="Vertize Gala Geraldine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html"><img src="//static.msromantic.com/214461/vertize-gala-geraldine.jpg" alt="Vertize Gala Geraldine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html](https://www.antebrands.com/en/vertize-gala-boheme/83360-vertize-gala-geraldine.html)

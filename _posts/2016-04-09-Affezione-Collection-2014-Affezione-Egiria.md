@@ -9,9 +9,9 @@ tags: [Affezione Collection 2014]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212725/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212725/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212726/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212727/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212724/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affezione-collection-2014/82537-affezione-egiria.html](https://www.readybrides.com/en/affezione-collection-2014/82537-affezione-egiria.html)
+<!-- break --><a href="https://www.antebrands.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212726/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212727/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affezione-collection-2014/82537-affezione-egiria.html"><img src="//static.msromantic.com/212724/affezione-egiria.jpg" alt="Affezione Egiria" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affezione-collection-2014/82537-affezione-egiria.html](https://www.antebrands.com/en/affezione-collection-2014/82537-affezione-egiria.html)

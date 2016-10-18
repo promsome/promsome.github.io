@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83420-vertize-gala-ely.html"><img src="//static.msromantic.com/214563/vertize-gala-ely.jpg" alt="Vertize Gala Ely" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83420-vertize-gala-ely.html"><img src="//static.msromantic.com/214563/vertize-gala-ely.jpg" alt="Vertize Gala Ely" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83420-vertize-gala-ely.html](https://www.readybrides.com/en/vertize-gala-privee/83420-vertize-gala-ely.html)
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83420-vertize-gala-ely.html](https://www.antebrands.com/en/vertize-gala-privee/83420-vertize-gala-ely.html)

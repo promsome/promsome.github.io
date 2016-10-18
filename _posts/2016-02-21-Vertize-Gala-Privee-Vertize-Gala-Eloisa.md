@@ -9,7 +9,7 @@ tags: [Vertize Gala Privee]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html"><img src="//static.msromantic.com/214569/vertize-gala-eloisa.jpg" alt="Vertize Gala Eloisa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html"><img src="//static.msromantic.com/214569/vertize-gala-eloisa.jpg" alt="Vertize Gala Eloisa" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html"><img src="//static.msromantic.com/214568/vertize-gala-eloisa.jpg" alt="Vertize Gala Eloisa" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html](https://www.readybrides.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html"><img src="//static.msromantic.com/214568/vertize-gala-eloisa.jpg" alt="Vertize Gala Eloisa" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html](https://www.antebrands.com/en/vertize-gala-privee/83423-vertize-gala-eloisa.html)

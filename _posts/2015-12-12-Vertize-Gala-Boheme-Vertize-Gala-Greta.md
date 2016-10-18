@@ -9,7 +9,7 @@ tags: [Vertize Gala Boheme]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html"><img src="//static.msromantic.com/214447/vertize-gala-greta.jpg" alt="Vertize Gala Greta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html"><img src="//static.msromantic.com/214447/vertize-gala-greta.jpg" alt="Vertize Gala Greta" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html"><img src="//static.msromantic.com/214446/vertize-gala-greta.jpg" alt="Vertize Gala Greta" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html](https://www.readybrides.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html"><img src="//static.msromantic.com/214446/vertize-gala-greta.jpg" alt="Vertize Gala Greta" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html](https://www.antebrands.com/en/vertize-gala-boheme/83352-vertize-gala-greta.html)

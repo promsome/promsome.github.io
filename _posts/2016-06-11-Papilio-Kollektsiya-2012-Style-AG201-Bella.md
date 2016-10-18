@@ -9,7 +9,7 @@ tags: [Papilio Kollektsiya 2012]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/papilio-kollektsiya-2012/83067-papilio-kollektsiya-2012-style-ag201-bella.html"><img src="//static.msromantic.com/213857/papilio-kollektsiya-2012-style-ag201-bella.jpg" alt="Papilio Kollektsiya 2012 Style AG201 - Bella" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/papilio-kollektsiya-2012/83067-papilio-kollektsiya-2012-style-ag201-bella.html"><img src="//static.msromantic.com/213857/papilio-kollektsiya-2012-style-ag201-bella.jpg" alt="Papilio Kollektsiya 2012 Style AG201 - Bella" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/papilio-kollektsiya-2012/83067-papilio-kollektsiya-2012-style-ag201-bella.html](https://www.readybrides.com/en/papilio-kollektsiya-2012/83067-papilio-kollektsiya-2012-style-ag201-bella.html)
+Buy it: [https://www.antebrands.com/en/papilio-kollektsiya-2012/83067-papilio-kollektsiya-2012-style-ag201-bella.html](https://www.antebrands.com/en/papilio-kollektsiya-2012/83067-papilio-kollektsiya-2012-style-ag201-bella.html)

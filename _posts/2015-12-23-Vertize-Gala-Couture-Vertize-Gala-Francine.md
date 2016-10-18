@@ -9,7 +9,7 @@ tags: [Vertize Gala Couture]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-couture/83363-vertize-gala-francine.html"><img src="//static.msromantic.com/214469/vertize-gala-francine.jpg" alt="Vertize Gala Francine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-couture/83363-vertize-gala-francine.html"><img src="//static.msromantic.com/214469/vertize-gala-francine.jpg" alt="Vertize Gala Francine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-couture/83363-vertize-gala-francine.html"><img src="//static.msromantic.com/214468/vertize-gala-francine.jpg" alt="Vertize Gala Francine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-couture/83363-vertize-gala-francine.html](https://www.readybrides.com/en/vertize-gala-couture/83363-vertize-gala-francine.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-couture/83363-vertize-gala-francine.html"><img src="//static.msromantic.com/214468/vertize-gala-francine.jpg" alt="Vertize Gala Francine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-couture/83363-vertize-gala-francine.html](https://www.antebrands.com/en/vertize-gala-couture/83363-vertize-gala-francine.html)

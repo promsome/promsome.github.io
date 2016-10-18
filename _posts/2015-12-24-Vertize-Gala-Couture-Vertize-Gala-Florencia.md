@@ -9,7 +9,7 @@ tags: [Vertize Gala Couture]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html"><img src="//static.msromantic.com/214471/vertize-gala-florencia.jpg" alt="Vertize Gala Florencia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html"><img src="//static.msromantic.com/214471/vertize-gala-florencia.jpg" alt="Vertize Gala Florencia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html"><img src="//static.msromantic.com/214470/vertize-gala-florencia.jpg" alt="Vertize Gala Florencia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html](https://www.readybrides.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html)
+<!-- break --><a href="https://www.antebrands.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html"><img src="//static.msromantic.com/214470/vertize-gala-florencia.jpg" alt="Vertize Gala Florencia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html](https://www.antebrands.com/en/vertize-gala-couture/83364-vertize-gala-florencia.html)
