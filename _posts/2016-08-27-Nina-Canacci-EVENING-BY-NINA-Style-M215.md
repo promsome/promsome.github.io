@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-08-27'
+date: 2016-08-27
 title: "Nina Canacci EVENING BY NINA Style M215"
 category: Nina Canacci
 tags: [Nina Canacci]

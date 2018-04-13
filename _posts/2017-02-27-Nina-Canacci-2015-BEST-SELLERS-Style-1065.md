@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-02-27'
+date: 2017-02-27
 title: "Nina Canacci 2015 BEST SELLERS Style 1065"
 category: Nina Canacci
 tags: [Nina Canacci]

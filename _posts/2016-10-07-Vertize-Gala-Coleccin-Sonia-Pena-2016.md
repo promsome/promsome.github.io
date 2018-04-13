@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-10-07'
+date: 2016-10-07
 title: "Vertize Gala Colección Sonia Pena 2016"
 category: Vertize Gala
 tags: [Vertize Gala]

@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-04-19'
+date: 2017-04-19
 title: "Primavera Prom Spring 2016 Style 1596 2016"
 category: Primavera
 tags: [Primavera,2016]

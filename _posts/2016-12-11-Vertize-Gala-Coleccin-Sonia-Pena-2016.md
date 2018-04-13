@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2016-12-11'
+date: 2016-12-11
 title: "Vertize Gala Colección Sonia Pena 2016"
 category: Vertize Gala
 tags: [Vertize Gala]
 ---
 ### Vertize Gala Colección Sonia Pena 2016
-Just **$409.99**
+Just **$339.99**
 ###      
 <table><tr><td>BRANDS</td><td>Vertize Gala</td></tr></table>
-<a href="https://www.readybrides.com/en/vertize-gala/83520-vertize-gala-coleccion-sonia-pena-2016.html"><img src="//img.readybrides.com/214671/vertize-gala-coleccion-sonia-pena-2016.jpg" alt="Vertize Gala Colección Sonia Pena 2016" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vertize-gala/83484-vertize-gala-coleccion-sonia-pena-2016.html"><img src="//img.readybrides.com/214635/vertize-gala-coleccion-sonia-pena-2016.jpg" alt="Vertize Gala Colección Sonia Pena 2016" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vertize-gala/83520-vertize-gala-coleccion-sonia-pena-2016.html](https://www.readybrides.com/en/vertize-gala/83520-vertize-gala-coleccion-sonia-pena-2016.html)
+Buy it: [https://www.readybrides.com/en/vertize-gala/83484-vertize-gala-coleccion-sonia-pena-2016.html](https://www.readybrides.com/en/vertize-gala/83484-vertize-gala-coleccion-sonia-pena-2016.html)
